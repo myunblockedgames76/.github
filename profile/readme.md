@@ -1,5 +1,7 @@
 # Unblocked Games 76 – The Best Way to Play Games Anywhere
 
+# <a href="https://sites.google.com/view/unblockedgamesfwd/home">▶️ Play Unblocked Games Here</a>
+
 ## Discover the Fun of Unblocked Games at School or Work
 
 Sometimes, school days feel endless — filled with assignments, long lectures, and tight schedules. But every now and then, taking a short break can make a big difference. That’s where **unblocked games** come into play.
